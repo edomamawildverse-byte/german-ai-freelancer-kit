@@ -1,1 +1,0 @@
-# german-ai-freelancer-kit
